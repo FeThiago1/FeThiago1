@@ -1,0 +1,1 @@
+<a href="https://app.bounties4.com/@/Thiago" target="_blank"><img title="bounties4.com/@/Thiago" alt="bounties4.com/@/Thiago" src="https://storage.googleapis.com/profile_avatar/production/100852778948306742250/1696879657672_badge.png" width="400" height="400" /></a>
